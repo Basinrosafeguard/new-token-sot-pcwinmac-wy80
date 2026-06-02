@@ -1,4 +1,4 @@
-# 
+# Turbo new token sniper bot complementos para Mac OS | Avanzado new token sniper bot complementos para PC Windows. Con verificación de aprobación de tokens y extracción MEV — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
